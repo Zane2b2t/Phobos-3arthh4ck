@@ -4,3 +4,6 @@
 ![image](https://user-images.githubusercontent.com/88916121/196032463-401250b4-0c37-4be7-936e-210fc37a8eff.png)
 
 https://cdn.discordapp.com/attachments/1005969365981741096/1030996351925899294/unknown.png
+
+
+just because i "leaked" this doesn't mean im not trust worthy, i asked 3vt if i could upload it here for public use and he doesn't care
