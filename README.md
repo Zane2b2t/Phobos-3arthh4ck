@@ -8,3 +8,5 @@
 
 
 just because i "leaked" this doesn't mean im not trust worthy, i asked 3vt if i could upload it here for public use and he doesn't care
+
+NOTE: 1.1.0 is older than 1.0.4, published may 24th 2020 on the private phobos repo
